@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **Evading taxes**
 
-- 💬 My prounouns are  **nor/mal**
+- 💬 My prounouns are  **extra/ordinary**
 
 - 📫 How to reach me **tiagomanies4002@gmail.com**
 
