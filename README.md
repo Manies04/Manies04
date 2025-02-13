@@ -7,9 +7,9 @@
 
 - 🔭 I’m currently working on **42 Common Core**
 
-- 🌱 I’m currently learning **How to evade taxes**
+- 🌱 I’m currently learning **C**
 
-- 🤝 I’m looking for help with **Evading taxes**
+- 🤝 I’m looking for help with **C**
 
 - 💬 My prounouns are  **extra/ordinary**
 
